@@ -1,1 +1,0 @@
-# sirdom.github.io
